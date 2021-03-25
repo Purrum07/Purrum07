@@ -1,0 +1,5 @@
+- 👋 Hi, My name is Mario Márquez most known as @Purrum07
+- 👀 I’m interested in all the things related with technology
+- 🌱 I’m currently learning and studying mobile and web development and cybersegurity
+- 💞️ I’m looking to collaborate on anything related with web development, mobile development and testing.
+- 📫 How to reach me marioalex20007@hotmail.com
